@@ -1,1 +1,2 @@
-Nabrissa Khan 
+Nabrissa Khan
+khannab@oregonstate.edu
