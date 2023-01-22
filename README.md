@@ -1,4 +1,4 @@
 Nabrissa Khan
-khannab@oregonstate.edu
+nabrissa.khan@gmail.com
 green
 The Cranberries
